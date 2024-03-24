@@ -7,5 +7,5 @@
 
 - 💎 **We Are Currently Working On Our Goal.**
 - 🧥 **We will Never Ever Give Up.**
-- 💡 **There Is No Greater Tyranny Than That Which Is Perpetrated Under The Shield Of God's Law And In The Name Of God.**
+- 💡 **There Is No Greater Tyranny Than That Which Is Perpetrated Under The Shield Of God's Rule And In The Name Of God.**
 - ⚖ **Tyrants Will Be Removed.**
